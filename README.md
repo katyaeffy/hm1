@@ -20,5 +20,7 @@
 **Мои соцсети:**
 VKONTAKTE <https://vk.com/katrikatrin>
 INSTAGRAM <https://www.instagram.com/katyaeffy/>
-[фотографии из моего аккаунта в инстаграм](https://github.com/katyaeffy/hm1/blob/master/26223507_1186126721518498_8296175901448601600_n_002.jpg)
+
+[Вот красивые фотографии из моего аккаунта в инстаграм](https://github.com/katyaeffy/hm1/blob/master/26223507_1186126721518498_8296175901448601600_n_002.jpg https://github.com/katyaeffy/hm1/blob/master/25005727_540839906308521_5564976420913938432_n.jpg https://github.com/katyaeffy/hm1/blob/master/25011332_143114113030368_5481055182311653376_n.jpg https://github.com/katyaeffy/hm1/blob/master/25025285_104572146999394_7731993971018170368_n.jpg) 
+
 
