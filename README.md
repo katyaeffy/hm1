@@ -24,6 +24,6 @@ VKONTAKTE | INSTAGRAM
 <https://vk.com/katrikatrin> | <https://www.instagram.com/katyaeffy/>
 
 
-![](https://www.instagram.com/p/Bd7acxLh494/?taken-by=katyaeffy)
+![](2017-12-16 01.13.15 2)
 
 
