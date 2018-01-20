@@ -23,6 +23,6 @@ VKONTAKTE | INSTAGRAM
 ------------- | -------------
 <https://vk.com/katrikatrin> | <https://www.instagram.com/katyaeffy/>
 
-![](2017-12-16 01.13.15 2)
+![](2017-12-16 01.13.15 2.jpg)
 
 
